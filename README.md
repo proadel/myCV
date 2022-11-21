@@ -3,10 +3,10 @@
 - 🌱 I’m currently learning and working with (Medicine as General Physician >18 years); + Python, Django, Dart, Flutter, Firebase, HTML, CSS, Jscript, Java, Node.js, PHP, MySQL, Laravel, Elementor pro, WPML, WooCommerce, WordPress. 
 
 
-- 📫 How to reach me ... with best wishes,
+- 📫 How to reach me ... with best Wishes,
   ------------------------------------------------------
-  Adel M Dawood M , Founder of Umbrella Corp. ST.
-  <br> for Technopreneur Multisolutions Services 
+  Adel M Dawood M , Founder of Umbrella Technopreneur,<br>
+  Multisolutions Services
   ------------------------------------------------------
   Be Free To Contact via whatsapp, email<br>
   +967733477848 - adeldawood@live.com "arabic, english"
