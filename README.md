@@ -10,8 +10,8 @@ remedazo.com/ Adel MD, General Physician - Sanaa - Yemen Remedazo service provid
 <br>
 - Education <br>  • Training Certifications in Full Stack Web and Mobile Developer from KAIZON Creative design | Web development , Sana`a - Yemen. email: info@kaizon.net ,,, - Yemen, Sana`a. Alzubairi Street November 2022 to February 2023. <br>  • Humanitarian Leadership Academy in Introduction to International Humanitarian Law (IHL) Kaya.org January 2022 to January 2022 The Humanitarian Leadership Academy, Certified in  / Suicide Prevention in Resettlement, Asylum and Integration Settings Kaya.org December 2021 to December 2021. <br>  • Stanford University online School of Medicine in COVID-19 Training for Healthcare Workers Coursera.org December 2021 to December 2021. <br>  • IoE' Internet of EveryThing, Certification in dealing course with how things those are non-IP-enabled and IP-enabled can be connected to a network to communicate, and interactions of people, process, data, and things that form the Internet of Everything. Its The New Way to Be Together™ ® Cisco Networking Academy online - sana`a, netacad.com May 2015 to January 2017. <br>  • Quality of Health Care, Certification; Approved by Health Care Accreditation Council HCAC from UAE and Jordan. in the basic principles courses with dimensions of quality in health care and quality management program components with Skills needed for the development of health policies and procedures in the workplace,... © Edraak.org, - Self, AR March 2015 to April 2015. <br>  Cisco Technopreneur, Participation Certification in which is a sub-course derived from Entrepreneurship course - Creating, Developing, Operating, securing and controlling a new technological businesses ® Cisco Networking Academy online - sana`a, netacad.com January 2014 to December 2014. <br>  • Cisco Certified Network Professional, CCNP® Certifications in Network Engineering Cisco Networking Academy - sana`a, General Telecommunication Institute. AL-Jeraff - TV road. January 2010 to December 2013. <br> • Cisco Certified Network Associate , CCNA® Certification in Network Admin. Cisco Networking Academy - sana`a, General Telecommunication Institute. AL-Jeraff - TV road. January 2010 to December 2013. <br>  • Bachelor of Medicine, Bachelor of Surgery (MBBS) in Human Medicine Applied & Social Sciences University - Yemen, Sanaa February 1998 to December 2004. <br> • High school in Science Makkah High School - MAKKAH ALMOKARAMAH, KSA. January 1998. <br>
 - Languages • English - Intermediate • Arabic - Advanced. <br> • Assessments Social media — Familiar April 2022 Knowledge of popular social media platforms, features, and functions, Full results: Familiar. Indeed Assessments provides skills tests that are not indicative of a license or certification, or continued development in any professional field, in the end : My life objectives totally to Make life of peoples more healthy, creatively, simplest, securest, and much profitability. <br>
-- How to reach me ... with best Wishes,
-  ------------------------------------------------------
+- How to reach me ... with best Wishes, <br>
+  ------------------------------------------------------ 
   Adel Mohammed Dawood M. SZ. , Founder of Umbrella Corp.<br>
   The Universal Technopreneur Multisolution Services
   ------------------------------------------------------
@@ -19,16 +19,6 @@ remedazo.com/ Adel MD, General Physician - Sanaa - Yemen Remedazo service provid
   +967733477848 - adeldawood@live.com "arabic, english"<br>
   Sana`a City - YEMEN. AL.Raqass Street.
   ====================================================== <br>
-
-- 📫 How to reach me ... with best Wishes,
-  ------------------------------------------------------
-  Adel Mohammed Dawood M. SZ. , Founder of Umbrella Corp.<br>
-  The Universal Technopreneur Multisolution Services
-  ------------------------------------------------------
-  Be Free To Contact via whatsapp, email <br>
-  +967733477848 - adeldawood@live.com "arabic, english"<br>
-  Sana`a City - YEMEN. AL.Raqass Street.
-  ======================================================
 
 <!---
 proadel/proadel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
