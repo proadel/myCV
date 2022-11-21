@@ -18,7 +18,7 @@ remedazo.com/ Adel MD, General Physician - Sanaa - Yemen Remedazo service provid
   ------------------------------------------------------------------- <br>
   Be Free To Contact via whatsapp, email <br>
   +967733477848 - adeldawood@live.com "arabic, english"<br>
-  Sana`a City - YEMEN. AL.Raqass Street. <br>
+  Sana`a City - YEMEN.  <br>
   ======================================= <br>
 
 <!---
