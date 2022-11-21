@@ -13,7 +13,7 @@ remedazo.com/ Adel MD, General Physician - Sanaa - Yemen Remedazo service provid
 
 - 📫 How to reach me ... with best Wishes,
   ------------------------------------------------------
-  Adel M Dawood M , Founder of Umbrella Corp.<br>
+  Adel Mohammed Dawood M. SZ. , Founder of Umbrella Corp.<br>
   The Universal Technopreneur Multisolution Services
   ------------------------------------------------------
   Be Free To Contact via whatsapp, email <br>
